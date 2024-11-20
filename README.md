@@ -1,3 +1,3 @@
-# Link drive báo cáo mô tả
+# Link drive báo cáo cuối kỳ và video demo
 
-https://drive.google.com/drive/folders/1wCrz2HozGnHo1nJY8Z66jcoT1ffs7EmS?usp=drive_link
+https://drive.google.com/drive/u/0/folders/12eFP97MU6L-kS9epvueZ4g69x26g5qx2
